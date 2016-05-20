@@ -1,2 +1,2 @@
 # Here-AM-I-
-Just another start up 
+Hello the world is changing and I am here to help you transistion to the Enlightment 
